@@ -1,1 +1,1 @@
-# salman3th.github.io
+<a href="https://heyzine.com/flip-book/e3b76504a5.html" target="_BLANK" class="heyzine-link fp-link"><img src="https://cdnc.heyzine.com/flip-book/cover/e3b76504a51.jpg" class="fp-thumb" style="border: 1px solid lightgray; box-shadow: lightgray 0px 0px 4px 1px; width: 250px;"></a>
